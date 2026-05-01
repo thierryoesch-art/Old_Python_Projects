@@ -1,2 +1,8 @@
-These are our Old Projects✌️<img width="498" height="278" alt="BocchiTheRockBocchiGIF" src="https://github.com/user-attachments/assets/bc595542-3f46-4861-b47f-370c70e5fc10" />
+These are our Old Projects✌️
+
+
+
+
+<img width="498" height="354" alt="BocchiTheRockBocchiGIF (2)" src="https://github.com/user-attachments/assets/435f7afc-b5ba-42de-9803-711586fa9f8c" />
+
 
